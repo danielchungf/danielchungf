@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @danielchungf
+- 👋 Hi, I’m Daniel (@danielchungf)
 - 👀 I’m interested in videogames, hiking, pets, content creation and digital products.
 - 🌱 I’m currently learning how to code!
 - 💞️ I’m looking to collaborate on anything that can help me learn.
